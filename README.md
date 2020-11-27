@@ -8,4 +8,4 @@
 
 ⚡ Fun fact: My dog's name is Enzo (Cane Corso)
 
-Donations are happily accepted: (Ko-Fi)[https://ko-fi.com/kriegcmd]
+Donations are happily accepted: [Ko-Fi](https://ko-fi.com/kriegcmd)
